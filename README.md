@@ -4,7 +4,7 @@
 - 👀 I’m interested in Artificial Inteligence
 - 🌱 I’m currently learning PHP (lol i know)
 - 💞️ I’m looking to collaborate on ... haha you think i have friends
-- 📫 Email me at ciarancook1@gmail.com
+- 📫 Email me at ciarancook0@gmail.com
 
 
 
